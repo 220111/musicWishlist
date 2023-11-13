@@ -18,7 +18,7 @@ I don't actually listen to the CDs themselves too often but I would really like 
 | Portugal. The Man | Evil Friends |
 | Portugal. The Man | The Satanic Satanist |
 | Nirvana | Nevermind |
-| Rage Agaisnt the Machine | The Battle of Los Angeles |
+| Rage Against the Machine | The Battle of Los Angeles |
 | Fatboy Slim | You've Come a Long Way Baby |
 | Genesis | We Can't Dance |
 | Gin Blossoms | New Miserable Experience |

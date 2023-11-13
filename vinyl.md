@@ -8,8 +8,8 @@ These are the albums I would like to own on vinyl. This collection is currently 
 
 | Artist      | Album       |
 | ----------- | ----------- |
-| The Demigs   | Yardling    |
-| The Demigs   | Cities Can Wait |
+| The Demigs  | Yardling    |
+| The Demigs  | Cities Can Wait |
 | Peach Pit   | Being So Normal |
 | Peach Pit   | You and Your Friends |
 | Portugal. The Man | American Ghetto |
